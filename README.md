@@ -1,1 +1,1 @@
-Ziyaret etmek için tıklayın: https://www.pucake.com
+Ziyaret etmek için tıklayın: [Pucake.com] (https://www.pucake.com)
